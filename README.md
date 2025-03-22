@@ -13,7 +13,7 @@
 ![image](Wallpapers/HimenoAki_2.png)
 
 ### Makima
-![image](Wallpapers/HimenoAki_2.png)
+![image](Wallpapers/Makima.png)
 
 ### Nerv
 ![image](Wallpapers/Nerv.png)
