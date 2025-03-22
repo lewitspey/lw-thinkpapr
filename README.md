@@ -25,4 +25,7 @@
 ![image](Wallpapers/PowerBW.png)
 
 ### Rei
-![image](Wallpaper/Rei.jpg)
+![image](https://github.com/user-attachments/assets/826c9be2-ffd9-4e33-b182-52289f9d3917)
+
+
+
