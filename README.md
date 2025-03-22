@@ -13,7 +13,8 @@
 ![image](Wallpapers/HimenoAki_2.png)
 
 ### Makima
-![image](Wallpapers/Makima.png)
+![image](https://github.com/user-attachments/assets/9a39e61e-4135-4565-a55f-81b055082e45)
+
 
 ### Nerv
 ![image](Wallpapers/Nerv.png)
