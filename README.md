@@ -1,5 +1,5 @@
 ## Preview
-### Most of these wallpapers were gotten from Wallhaven
+### Most of these wallpapers are from Wallhaven
 # 
 
 ### Arasaka
